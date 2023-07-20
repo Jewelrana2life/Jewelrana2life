@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @juel
 - 👀 I’m interested in ...love
 - 🌱 I’m currently learning ...wishes 
-- 💞️ I’m looking to collaborate on ... destined 
+- 💞️ I’m looking to collaborate on ... love 
 - 📫 How to reach me ...own
 <!---
 Jewelrana2life/Jewelrana2life is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
